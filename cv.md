@@ -1,6 +1,6 @@
 # Anna Nami
 
-Located in **Moscow**
+Located in Moscow
 
 **telegram**: [@nami_ann](https://t.me/nami_ann)
 
@@ -16,7 +16,7 @@ Located in **Moscow**
 
 ## English level
 
-**Pre-Intermediate**
+Pre-Intermediate
 
 ## Contact me
 
