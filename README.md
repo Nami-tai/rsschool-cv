@@ -1,1 +1,1 @@
-https://nami-tai.github.io/rsschool-cv/cv
+https://nami-tai.github.io/rsschool-cv/
