@@ -17,8 +17,3 @@ Located in Moscow
 ## English level
 
 Pre-Intermediate
-
-## Contact me
-
-GitHub: [github.com/Wadimx199789](https://github.com/Wadimx199789)
-
